@@ -1,4 +1,4 @@
-
+Experience bedwars like never before with bedwars Scripts stealth, the #1 Script. Includes anti-ban and infinite resources for unbeatable performance.
 
 
 
